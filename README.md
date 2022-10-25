@@ -1,1 +1,0 @@
-# halloween_skall_108hqr
